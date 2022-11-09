@@ -1,2 +1,2 @@
 # proba ff 
-zelim da ovaj tren traje zauvek 
+zelim da ovaj tren traje zauvek ide gas
